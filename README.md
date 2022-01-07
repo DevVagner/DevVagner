@@ -1,4 +1,4 @@
-## 💻 Desenvolvedor Front-End.
+## 💻 Desenvolvedor  Python.
 
 ### 👨‍💻 Apaixonado pelo mundo da tecnologia, e prazer por fazer parte dela.
 
